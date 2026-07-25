@@ -1,4 +1,3 @@
-<p align="center">
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/23356951ed77a29e5095115b805747d5.jpg" width="700"/><br><br>
 
 <p align="center"> <p align="center"><img src="https://github.com/user-attachments/assets/231cf899-823d-4336-bb16-6181820873ce" width="700"/><br><br>
