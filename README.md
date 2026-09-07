@@ -17,7 +17,35 @@
 <p align="center"> <a href="https://nepetaluvr3069.atabook.org/" target="_blank">atabook</a>  
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
 
+
+<div align="center">
+
+</p>
+
+<details>
+  <summary> BUDS </summary>
+  <br>
+
+<p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
+
+<p align="center"> <a href="https://github.com/Candiedwraith" target="_blank">@Candiedwraith</a>
+<p align="center"> <a href="https://github.com/decayingcrow" target="_blank">@decayingcrow</a> 
+<p align="center"> <a href="https://github.com/itoldyoudawg" target="_blank">@itoldyoudawg</a>
+<p align="center"> <a href="https://github.com/criticallyapathetic" target="_blank">@criticallyapathetic</a>
+<p align="center"> <a href="https://github.com/RAINBOWWHIPPER" target="_blank">@RAINBOWWHIPPER</a>
+<p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">@SpikedSxdism</a>
+<p align="center"> <a href="https://github.com/sejopi" target="_blank">@sejopi</a>
+<p align="center"> <a href="https://github.com/Pineappl3lov3r" target="_blank">@Pineappl3lov3r</a>
+
+<p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
+
+
+</details>
+
+</div>
+
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/75ca129409758ec0e1e411646d7567c5.jpg" width="700"/><br><br> 
+
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k5ltiyjkaldbkm74hy3ngn5zfu&redirect=true">
