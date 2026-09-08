@@ -6,7 +6,7 @@
 <p align="center"> :33 < yo im shark/nepeta/omg/lyme/starfire 
 <p align="center"> :33 < i purromise im cool pls dont be scared to talk to me... 👀
 <p align="center"> >:TT < fire spirit cookie yume, doubles dniuid
-<p align="center"> :<< < im not on pony town that often anymeowre beclawse im busy and tired sorry
+<p align="center"> :33 < if im not on pawny town its beclawse im busy, otherwise i always have it in the background!!
 
 ‎ 
 
@@ -30,7 +30,7 @@
 
 <p align="center"> <a href="https://github.com/Candiedwraith" target="_blank">ghost!!!!</a>
 <p align="center"> <a href="https://github.com/decayingcrow" target="_blank">davesprite!!!!</a> 
-<p align="center"> <a href="https://github.com/itoldyoudawg" target="_blank">@jam!!!!</a>
+<p align="center"> <a href="https://github.com/itoldyoudawg" target="_blank">jam!!!!</a>
 <p align="center"> <a href="https://github.com/criticallyapathetic" target="_blank">zenny zen zen (my child)!!!!</a>
 <p align="center"> <a href="https://github.com/RAINBOWWHIPPER" target="_blank">system of bl33ding hearts!!!!</a>
 <p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">karkat!!!!</a>
