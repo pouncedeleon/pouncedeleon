@@ -28,15 +28,16 @@
 
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
 
-<p align="center"> <a href="https://github.com/Candiedwraith" target="_blank">@Candiedwraith</a>
-<p align="center"> <a href="https://github.com/decayingcrow" target="_blank">@decayingcrow</a> 
-<p align="center"> <a href="https://github.com/itoldyoudawg" target="_blank">@itoldyoudawg</a>
-<p align="center"> <a href="https://github.com/criticallyapathetic" target="_blank">@criticallyapathetic</a>
-<p align="center"> <a href="https://github.com/RAINBOWWHIPPER" target="_blank">@RAINBOWWHIPPER</a>
-<p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">@SpikedSxdism</a>
-<p align="center"> <a href="https://github.com/sejopi" target="_blank">@sejopi</a>
-<p align="center"> <a href="https://github.com/Pineappl3lov3r" target="_blank">@Pineappl3lov3r</a>
-
+<p align="center"> <a href="https://github.com/Candiedwraith" target="_blank">ghost!!!!</a>
+<p align="center"> <a href="https://github.com/decayingcrow" target="_blank">davesprite!!!!</a> 
+<p align="center"> <a href="https://github.com/itoldyoudawg" target="_blank">@jam!!!!</a>
+<p align="center"> <a href="https://github.com/criticallyapathetic" target="_blank">zenny zen zen (my child)!!!!</a>
+<p align="center"> <a href="https://github.com/RAINBOWWHIPPER" target="_blank">system of bl33ding hearts!!!!</a>
+<p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">karkat!!!!</a>
+<p align="center"> <a href="https://github.com/sejopi" target="_blank">sirgil!!!!</a>
+<p align="center"> <a href="https://github.com/Pineappl3lov3r" target="_blank">dot/april/feferi (MEOWRAIL)!!!!</a>  
+<p align="center"> <a href="https://github.com/turntechGodh3aded" target="_blank">davey!!!!</a>
+  
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
 
 
