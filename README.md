@@ -36,7 +36,8 @@
 <p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">karkat!!!!</a>
 <p align="center"> <a href="https://github.com/sejopi" target="_blank">sirgil!!!!</a>
 <p align="center"> <a href="https://github.com/Pineappl3lov3r" target="_blank">dot/april/feferi (MEOWRAIL)!!!!</a>  
-<p align="center"> <a href="https://github.com/turntechGodh3aded" target="_blank">davey!!!!(THIRD MEOWRAIL wow.) </a>
+<p align="center"> <a href="https://github.com/turntechGodh3aded" target="_blank">davey!!!!(THIRD MEOWRAIL wow.)</a>
+<p align="center"> <a href="https://github.com/moirallegiance" target="_blank">ugly fat chud jace></a>
   
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
 
