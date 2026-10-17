@@ -34,7 +34,7 @@
 <p align="center"> <a href="https://github.com/criticallyapathetic" target="_blank">zenny zen zen (my child)!!!!</a>
 <p align="center"> <a href="https://github.com/RAINBOWWHIPPER" target="_blank">system of bl33ding hearts!!!!</a>
 <p align="center"> <a href="https://github.com/SpikedSxdism" target="_blank">karkat!!!!</a>
-<p align="center"> <a href="https://github.com/sejopi" target="_blank">sirgil!!!!</a>
+<p align="center"> <a href="https://github.com/hwobae" target="_blank">sirgil!!!!</a>
 <p align="center"> <a href="https://github.com/Pineappl3lov3r" target="_blank">dot/april/feferi (MEOWRAIL)!!!!</a>  
 <p align="center"> <a href="https://github.com/turntechGodh3aded" target="_blank">davey!!!!(THIRD MEOWRAIL wow.)</a>
 <p align="center"> <a href="https://github.com/moirallegiance" target="_blank">ugly fat chud jace</a> 
