@@ -39,6 +39,7 @@
 <p align="center"> <a href="https://github.com/turntechDoghead" target="_blank">davey!!!!(THIRD MEOWRAIL wow.)</a>
 <p align="center"> <a href="https://github.com/moirallegiance" target="_blank">ugly fat chud jace</a> 
 <p align="center"> <a href="https://github.com/dessertful" target="_blank">unicorn glitter dumpling (pawsome sal)</a>
+<p align="center"> <a href="https://github.com/watcherbittes" target="_blank">P33rin. lol.  stinky.</a>
   
 <p align="center"> <img src="https://file.garden/acvj9-ww3CLdG7n2/line-ume08.gif" width="200"/><br><br>
 
